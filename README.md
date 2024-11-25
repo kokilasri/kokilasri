@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kokilasri
 - 👀 I’m interested in ... Data
-- 🌱 I’m currently learning ... Final Year IT @PSG College of Technology
+- 🌱 I’m currently ... Analyst @Deloitte USI
 - 📫 How to reach me ... kokilasri23@gmail.com
 
 <!---
